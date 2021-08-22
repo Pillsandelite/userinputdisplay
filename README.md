@@ -1,3 +1,3 @@
 # userinputdisplay
 
-https://user-images.githubusercontent.com/88979369/130284894-da6304b8-e6e9-4eed-abc5-c3c6d8156f15.mp4
+https://user-images.githubusercontent.com/88979369/130362979-a5a8e669-c0f7-4553-ac00-a89e3beb6147.mp4
